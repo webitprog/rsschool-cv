@@ -16,7 +16,7 @@
 
 ### Briefly About Myself:
 
-Starting with the layout of a school site in a computer science lesson, I realized that I really like creating a live design, and later uploading it to the Internet. I very much desire to take a high position in this difficult business, which I love.<br>
+Starting with the layout of a school site in a computer science lesson, I realized that I really like creating a live design, and later uploading it to the Internet. I very much desire to take a high position in this difficult business, which I love. BYE.<br>
 
 ---
 
