@@ -10,7 +10,8 @@
 **E-mail:** imthewinner2002@gmail.com<br>
 **Telegram:** @luckyshhhhh<br>
 [Telegram](https://t.me/luckyshhhhh)<br>
-[MyGitHub](https://github.com/webitprog)
+[MyGitHub](https://github.com/webitprog)<br>
+[VK](https://vk.com/ytnidel)
 
 ---
 
